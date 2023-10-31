@@ -1,2 +1,2 @@
 # github.io
-# Markdown? more like FARTdown!
+# Markdown? more like FARTdown! (Please laugh)
